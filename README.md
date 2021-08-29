@@ -1,1 +1,1 @@
-# PC01_LABORATORIO_KARINA_PUMACAYO
+# PC01_Laboratorio_KarinaPumacayo
